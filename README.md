@@ -1,6 +1,6 @@
 Hello!
 
-I'm Matt, though I'd prefer if you called me Athaeus. I am what I like calling an <i>aspiring everything</i>, because I'm into just so many things. These would onclude:
+I'm Matt, though I'd prefer if you called me Athaeus. I am what I like calling an <i>aspiring everything</i>, because I'm into just so many things. These would include:
 💻 Programming (duh), 🎨 Art, ⚔️ History, 🗣️ Linguistics and all the world's languages, 📖 Writing, storytelling and worldbuilding, 🎼 Music, 🎮 Gaming,
 💫 Animation (mostly anime :p), 🎬 Filmmaking, and 🌟 Astrophysics. I love to code, I love to draw, I love to write and I love to read, and I somtimes make conlangs.
 I also play video games, like the Total War series, Crusader Kings 2, Kerbal Space Program, RimWorld etc.
